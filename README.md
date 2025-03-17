@@ -4,6 +4,6 @@
 
 
 
-**Email:** [bandavikas39@gmail.com]((mailto:bandavikas39@gmail.com)  
+**Email:** [bandavikas39@gmail.com](mailto:bandavikas39@gmail.com)  
 **Instagram:** [@vikas_vikky_04](https://www.instagram.com/vikas_vikky_04/)  
 **LinkedIn:** [@Banda vikas](https://www.linkedin.com/in/banda-vikas-670307291/)  
